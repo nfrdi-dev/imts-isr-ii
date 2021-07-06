@@ -12,9 +12,7 @@ Planning, Policy, and Information Division (PPID) - Information Management and T
 
 #### Location:
 National Fisheries Research and Development Institute
-Corporate 101, Mother Ignacia Avenue, South Triangle, Quezon City 1103
-
-[View on Map](https://goo.gl/maps/XZryD7sbcPiYR4Cm6)
+Corporate 101, Mother Ignacia Avenue, South Triangle, Quezon City 1103 ([View on Map](https://goo.gl/maps/XZryD7sbcPiYR4Cm6))
 
 
 ### Duties and responsibilities:
@@ -30,5 +28,5 @@ Corporate 101, Mother Ignacia Avenue, South Triangle, Quezon City 1103
 9. Perform tasks as may be assigned by the Division Chief and immediate supervisor especially on instances that the services of the Second Party are most needed
 
 
-Send your CV to:
+Interested applicants may send their CV to:
 [hrm.nfrdi@gmail.com](hrm.nfrdi@gmail.com)
