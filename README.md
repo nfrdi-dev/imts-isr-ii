@@ -1,5 +1,4 @@
-### Position:
-Information Systems Researcher II
+![hero_image](https://i.imgur.com/dYNs4K6.png)
 
 #### Status:
 Contract of Service (renewable based on performance)
