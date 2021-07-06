@@ -10,6 +10,11 @@ Atleast 1 year experience
 #### Place of assignment
 Planning, Policy, and Information Division (PPID) - Information Management and Technology Section (IMTS)
 
+#### Location
+National Fisheries Research and Development Institute
+Corporate 101, Mother Ignacia Avenue, South Triangle, Quezon City 1103
+[View on Map](https://goo.gl/maps/XZryD7sbcPiYR4Cm6)
+
 
 ### Duties and responsibilities:
 
